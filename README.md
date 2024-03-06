@@ -1,0 +1,2 @@
+Green Ride offers a user-friendly webpage where customers can effortlessly book e-vehicles for their transportation needs, providing a sustainable and eco-friendly alternative to traditional transportation options.
+With a streamlined booking process and intuitive interface, Green Ride ensures a hassle-free experience for users, enabling them to easily select their desired vehicle, specify pick-up and drop-off locations, and complete their booking with just a few clicks.
